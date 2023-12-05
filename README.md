@@ -8,5 +8,5 @@ O aprendizado é o combustível que impulsiona minha trajetória. Estou sempre i
 
 Meu GitHub é um reflexo dessa jornada, onde busco não só contribuir com projetos relevantes, mas também aprender com a comunidade, compartilhando insights e explorando novas abordagens para os desafios tecnológicos do nosso tempo.
 
-Viajar é uma das minhas paixões, assim como estar cercado por amigos e entes queridos. Valorizo imensamente minha família, especialmente meus pais, que são minha inspiração e suporte.
+Viajar é uma das minhas paixões, assim como estar cercado por amigos e entes queridos. Valorizo imensamente minha família, especialmente meus pais e minha esposa Beatriz, que são minha inspiração e suporte.
 Outro ponto é que meu coração pulsa verde e branco, vibrando pela paixão inabalável pelo Palmeiras. Cada partida é uma emoção única, onde a história e a tradição do clube se fundem com minha devoção, celebrando vitórias memoráveis e inspirando-me com a garra e a determinação do time. O Palmeiras não é apenas um time de futebol para mim, é uma parte fundamental da minha identidade, representando valores de perseverança, orgulho e união que ressoam profundamente em meu ser.
